@@ -1,2 +1,2 @@
 
-click here to visit :  https://mohamedelnaggar16.github.io/Egyption-party/
+click to visit website :  https://mohamedelnaggar16.github.io/Egyption-party/
