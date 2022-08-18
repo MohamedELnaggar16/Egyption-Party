@@ -1,0 +1,2 @@
+# Egyption-party
+using jquery 
